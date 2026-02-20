@@ -27,7 +27,7 @@
 ---
 
 ### 🛠️ Interactive Stats
-<img src="https://github-readme-stats.vercel.app/api?username=MacNCheese0990&theme=dark&show_icons=true&hide_border=true&count_private=true" alt="MacNCheese0990's GitHub Stats" />
+<img src="https://streak-stats.demolab.com?user=MacNCheese0990&theme=tokyonight&hide_border=true" alt="MacNCheese0990's GitHub Stats" />
 
 ---
 
