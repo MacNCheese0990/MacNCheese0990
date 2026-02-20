@@ -1,5 +1,5 @@
 # [Cheese]
-> “Focus when doing something,.,. or don't. Don't exactly care.”
+> “Focus when doing something,.,. or don't. None would actually/realistically care.”
 
 ---
 
@@ -32,3 +32,16 @@
 ---
 
 ### Connect With Me
+
+<a href="https://macncheese0990.atabook.org/">MacN_Cheese0990's atabook</a>
+
+<a href="https://macncheese0990.straw.page">MacN_Cheese0990's strawpage</a>
+
+<a href="https://discord.com/users/https://discord.com/users/1178224192907395118">MacN_Cheese0990's Discord</a>
+
+<a href="https://www.youtube.com/@MacN_Cheese0990">MacN_Cheese0990's YouTube</a>
+
+<a href="https://www.wattpad.com/user/ItsBalqisOfficial">MacN_Cheese0990's Wattpad<a>
+
+---
+<p align="center"><sub>[Thank you for reaching out to my profile!]</sub></p>
