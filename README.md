@@ -16,7 +16,7 @@
 - Huge fans of Melanie Martinez, The Living Thombstone, Lady Gaga
 </details>
 
-- Enjoys dark/grim horror or psychology horror, creepypasta, analog horror, Dr Nwwhere's & Trevor Henderson's creature
+- Enjoys dark/grim horror or psychology horror, creepypasta, analog horror, Dr Nowhere's & Trevor Henderson's creature
 
 - A Russian/English song enthusiast
 
