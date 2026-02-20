@@ -9,7 +9,7 @@
 - **Main Server:** [Safe Server / Safe Indonesia]
 
 <details>
-<summary><b>My background</b></summary>
+<summary><b>Not-so-funfact about me</b></summary>
   
 - Not a fan of Kpop/Jpop.
 
