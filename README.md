@@ -31,7 +31,7 @@
 
 ---
 
-### Connect With Me
+### My other socials
 
 <a href="https://macncheese0990.atabook.org/">MacN_Cheese0990's atabook</a>
 
