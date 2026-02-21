@@ -15,13 +15,27 @@
 
 - Huge fans of Melanie Martinez, The Living Thombstone, Lady Gaga
 
-- Enjoys dark/grim horror or psychology horror, creepypasta, analog horror, Dr Nowhere's & Trevor Henderson's creature
+- Enjoys dark/grim horror or psychology horror, creepypasta, analog horror
 
 - A Russian/English song enthusiast
 
 - OCCASIONALLY speaks in advance/formal/fancy English just to flex
 
 - Tend to mention/reply to messages that's supposedly long ago
+
+</details>
+---
+
+<details>
+<summary>My Fandom(s)</summary>
+
+I. Horror vibe- Creepypasta (+Slendermansion AUs), SCP, Mandela Catalogue, Little Nightmares, NINAH, That's Not My Neighbour, TLOU, Peta-Peta (school), Trevor Henderson's creatures, Doctor Nowhere's creatures
+
+II. Calm/Soothing vibe- Backrooms, Dreamcore/Weirdcore/Kidcore/Glitchcore
+
+III. Psychological?? vibe- SFAWTDE, SFAPTDE, There Were Two Kids In The House, Marble Hornets, Tribetwelve
+
+IV. Slight gore/violence vibe- Madness Combat, FNA (+AUs), Attack On Titan, Sister Location/Circus Baby Pizzaria (+AUs), Security Breach (+AUs), Call of Duty (mostly TF141, KorTac, Ghosts)
 
 </details>
 
@@ -39,10 +53,6 @@
 <a href="https://macncheese0990.straw.page">MacN_Cheese0990's strawpage</a>
 
 <a href="https://discord.com/users/https://discord.com/users/1178224192907395118">MacN_Cheese0990's Discord</a>
-
-<a href="https://www.youtube.com/@MacN_Cheese0990">MacN_Cheese0990's YouTube</a>
-
-<a href="https://www.wattpad.com/user/ItsBalqisOfficial">MacN_Cheese0990's Wattpad<a>
 
 ---
 <p align="center"><sub>[Thank you for reaching out to my profile!]</sub></p>
