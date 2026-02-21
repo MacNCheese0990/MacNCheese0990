@@ -11,7 +11,7 @@
 ---
 
 <details>
-<summary><b>**Not-so-funfact about me**</b></summary>
+<summary><b>Not-so-funfact about me</b></summary>
   
 - Not a fan of Kpop/Jpop.
 
@@ -30,7 +30,7 @@
 ---
 
 <details>
-<summary>**My Fandom(s)**</summary>
+<summary>My Fandom(s)</summary>
 
 I. Horror vibe- Creepypasta (+Slendermansion AUs), SCP, Mandela Catalogue, Little Nightmares, NINAH, That's Not My Neighbour, TLOU, Peta-Peta (school), Trevor Henderson's creatures, Doctor Nowhere's creatures
 
