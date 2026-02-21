@@ -8,6 +8,8 @@
 - **Timezone:** [UTC+8]
 - **Main Server:** [Safe Server 1/Safe Server 2/ Safe Indonesia]
 
+---
+
 <details>
 <summary><b>Not-so-funfact about me</b></summary>
   
