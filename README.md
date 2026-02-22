@@ -7,6 +7,7 @@
 - **Status:** [Roleplay/OOC depends on current status]
 - **Timezone:** [UTC+8]
 - **Main Server:** [Safe Server 1/Safe Server 2/ Safe Indonesia]
+- **Persona:**  Rodrigo Ortiz @ Cat Hunter.
 
 ---
 
