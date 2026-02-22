@@ -17,15 +17,29 @@
 
 - Huge fans of Melanie Martinez, The Living Thombstone, Lady Gaga
 
-- Tend to get rude whle IC so ignores me if you despise that
+- Tend to get rude while IC so ignores me if you despise that
+
+- (Extreme) apathetic- if I'm being kind/understanding to you, remember it's just an act.
+
+- Regardless of stated above- I still am able to be anyone you want (cheerful/quiet/someone you wish to vent to/rude)
+
+- If you think bullying/harassing/mocking/ignoring me is an ideal opinion- I barely gaf unless you're my close friends.
+
+- Don't care about someone's backstory be it good or not- unless that person acts awful around my friends
+
+- I only stays genuine around my irl cousins (Varen, Charlie, Acocuca etc.)
 
 - Enjoys dark/grim horror or psychology horror, creepypasta, analog horror
 
 - A Russian/English song enthusiast
 
-- OCCASIONALLY speaks in advance/formal/fancy English just to flex
+- If I'm sulking/sensitive, best to ignores me or I'm gonna be a pain to you
+
+- OCCASIONALLY speaks in advance/formal/fancy English just to flex (especially in Safe Indonesia)
 
 - Tend to mention/reply to messages that's supposedly long ago
+
+- Prefers joining the trends once it's no longer popular
 
 </details>
 
