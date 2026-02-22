@@ -1,5 +1,5 @@
 # [Cheese] ![Profile Views](https://komarev.com/ghpvc/?username=MacNCheese0990&color=blue)
-> “Focus when doing something,.,. or don't. None would actually/realistically care.”
+> “A scratch for it, a scar for me.” - Cat Hunter CRP [My supposed? persona]
 
 ---
 
