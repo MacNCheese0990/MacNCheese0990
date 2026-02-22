@@ -74,4 +74,4 @@ IV. Slight gore/violence vibe- Madness Combat, FNA (+AUs), Attack On Titan, Sist
 <a href="https://discord.com/users/https://discord.com/users/1178224192907395118"> ̶M̶a̶c̶N̶_̶C̶h̶e̶e̶s̶e̶0̶9̶9̶0̶'̶s̶ ̶D̶i̶s̶c̶o̶r̶d̶</a> (Currently unavailable)
 
 ---
-<p align="center"><sub>[Thank you for reaching out to my profile!]</sub></p>
+<p align="center"><sub>[Thank you for reaching out to my profile]</sub></p>
