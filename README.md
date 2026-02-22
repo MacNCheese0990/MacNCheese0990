@@ -17,6 +17,8 @@
 
 - Huge fans of Melanie Martinez, The Living Thombstone, Lady Gaga
 
+- Tend to get rude whle IC so ignores me if you despise that
+
 - Enjoys dark/grim horror or psychology horror, creepypasta, analog horror
 
 - A Russian/English song enthusiast
