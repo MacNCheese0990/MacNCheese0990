@@ -63,8 +63,6 @@ IV. Slight gore/violence vibe- Madness Combat, FNAF (+AUs), Attack On Titan, Sis
 ### Interactive Stat
 <img src="https://streak-stats.demolab.com?user=MacNCheese0990&theme=tokyonight&hide_border=true" alt="MacNCheese0990's GitHub Stats" />
 
-![GitHub Stats](https://github-readme-stats.vercel.app/api?username=MacNCheese0990)
-
 ---
 
 ### My other socials
