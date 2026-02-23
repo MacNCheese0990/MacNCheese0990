@@ -22,7 +22,7 @@
 
 - (Extreme) apathetic- if I'm being kind/understanding to you, remember it's just an act.
 
-- Regardless of stated above- I still am able to be anyone you want (cheerful/quiet/someone you wish to vent to/rude)
+- Regardless of stated above- I still am able to be anyone you want (cheerful/quiet/someone you wish to vent to/rude- actively become a whole new person?)
 
 - If you think bullying/harassing/mocking/ignoring me is an ideal opinion- I barely gaf unless you're my close friends.
 
