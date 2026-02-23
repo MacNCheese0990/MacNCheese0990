@@ -3,6 +3,16 @@
 
 ---
 
+### My other socials
+
+<a href="https://macncheese0990.atabook.org/">My atabook</a>
+
+<a href="https://macncheese0990.straw.page">My strawpage</a>
+
+<a href="https://discord.com/users/https://discord.com/users/1178224192907395118"> ̶M̶a̶c̶N̶_̶C̶h̶e̶e̶s̶e̶0̶9̶9̶0̶'̶s̶ ̶D̶i̶s̶c̶o̶r̶d̶</a> (Currently unavailable)
+
+---
+
 ### Character Profile
 - **Status:** [Roleplay/OOC depends on current status]
 - **Timezone:** [UTC+8]
@@ -63,16 +73,6 @@
 
 ### Interactive Stat
 <img src="https://streak-stats.demolab.com?user=MacNCheese0990&theme=tokyonight&hide_border=true" alt="MacNCheese0990's GitHub Stats" />
-
----
-
-### My other socials
-
-<a href="https://macncheese0990.atabook.org/">My atabook</a>
-
-<a href="https://macncheese0990.straw.page">My strawpage</a>
-
-<a href="https://discord.com/users/https://discord.com/users/1178224192907395118"> ̶M̶a̶c̶N̶_̶C̶h̶e̶e̶s̶e̶0̶9̶9̶0̶'̶s̶ ̶D̶i̶s̶c̶o̶r̶d̶</a> (Currently unavailable)
 
 ---
 <p align="center"><sub>[Thank you for reaching out to my profile]</sub></p>
