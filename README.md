@@ -63,7 +63,7 @@
 
 **II. Calm/Soothing vibe-** Backrooms, Dreamcore/Weirdcore/Kidcore/Glitchcore
 
-**III. Psychological?? vibe-** SFAWTDE, SFAPTDE, There Were Two Kids In The House, Marble Hornets, Tribetwelve
+**III. Psychological?? vibe-** SFAWTDE, SFAPTDE, There Were Two Kids In The House, Marble Hornets, Tribetwelve, Bad Parenting
 
 **IV. Slight gore/violence vibe-** Madness Combat, FNAF (+AUs), Attack On Titan, Sister Location/Circus Baby Pizzaria (+AUs), Security Breach (+AUs), Call of Duty (mostly TF141, KorTac, Ghosts)
 
