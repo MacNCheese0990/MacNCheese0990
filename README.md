@@ -1,7 +1,4 @@
-
-<p align="center">
-  <img src="![Cat hunter](https://github.com/user-attachments/assets/f3fb3103-cf7f-450a-a539-a2609cf9feef)" width="50%" />
-</p>
+<img src="![Cat hunter](https://github.com/user-attachments/assets/f3fb3103-cf7f-450a-a539-a2609cf9feef)" width="50%" />
 
 cr art: dannmilanesa6945 [Pinterest]
 ---
