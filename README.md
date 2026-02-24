@@ -1,4 +1,8 @@
-![Cat hunter](https://github.com/user-attachments/assets/f3fb3103-cf7f-450a-a539-a2609cf9feef)
+
+<p align="center">
+  <img src="![Cat hunter](https://github.com/user-attachments/assets/f3fb3103-cf7f-450a-a539-a2609cf9feef)" width="300" />
+</p>
+
 cr art: dannmilanesa6945 [Pinterest]
 ---
 # [Cheese] ![Profile Views](https://komarev.com/ghpvc/?username=MacNCheese0990&color=blue)
