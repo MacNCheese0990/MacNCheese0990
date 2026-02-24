@@ -1,7 +1,9 @@
 <img src="![Cat hunter](https://github.com/user-attachments/assets/f3fb3103-cf7f-450a-a539-a2609cf9feef)" width="1200px;">
 
 <p align="center"><sub>[cr art: dannmilanesa6945 [Pinterest]]</sub></p>
+
 ---
+
 # [Cheese] ![Profile Views](https://komarev.com/ghpvc/?username=MacNCheese0990&color=blue)
 > “A scratch for it, a scar for me.” - Cat Hunter CRP [My supposed? persona]
 
