@@ -2,6 +2,9 @@
 > “A scratch for it, a scar for me.” - Cat Hunter CRP [My supposed? persona]
 
 ---
+<p align="center"><sub>[Thank you for reaching out to my profile]</sub></p>
+
+---
 
 ### My other socials
 
@@ -81,6 +84,3 @@
 </p>
 
 <p align="center"><sub>[cr art: dannmilanesa6945 Pinterest]</sub></p>
-
----
-<p align="center"><sub>[Thank you for reaching out to my profile]</sub></p>
