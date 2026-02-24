@@ -81,3 +81,11 @@
 </p>
 
 <p align="center"><sub>[cr art: dannmilanesa6945 Pinterest]</sub></p>
+
+---
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31qjp4rkfwxsu6equq2f5ivfsug4&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31qjp4rkfwxsu6equq2f5ivfsug4&cover_image=true&theme=apple&show_offline=false&background_color=121212&interchange=true&profanity=false&mode=light">
+  </a>
+</p>
