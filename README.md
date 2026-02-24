@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/d42ee722-3841-4808-a406-b4bc7a3c6bca" width="350" height="300">
+  <img src="https://github.com/user-attachments/assets/d42ee722-3841-4808-a406-b4bc7a3c6bca" width="350" height="350">
 </p>
 
 <p align="center"><sub>[cr art: dannmilanesa6945 Pinterest]</sub></p>
