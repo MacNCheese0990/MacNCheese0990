@@ -1,9 +1,6 @@
 # [Cheese] ![Profile Views](https://komarev.com/ghpvc/?username=MacNCheese0990&color=blue)
 > “A scratch for it, a scar for me.” - Cat Hunter CRP [My supposed? persona]
-
----
-<p align="center"><sub>[Thank you for reaching out to my profile]</sub></p>
-
+> 
 ---
 
 ### My other socials
