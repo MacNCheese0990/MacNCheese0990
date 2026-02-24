@@ -1,4 +1,4 @@
-<img src="![Cat hunter](https://raw.githubusercontent.com/user-attachments/assets/170fbf20-1a5e-4d33-b290-66d035fe6495)
+<img src="![Cat hunter](https://github.com/user-attachments/assets/d42ee722-3841-4808-a406-b4bc7a3c6bca)
 " width="1200px;">
 
 <p align="center"><sub>[cr art: dannmilanesa6945 Pinterest]</sub></p>
