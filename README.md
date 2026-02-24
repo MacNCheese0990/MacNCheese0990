@@ -1,11 +1,3 @@
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/d42ee722-3841-4808-a406-b4bc7a3c6bca" width="350" height="350">
-</p>
-
-<p align="center"><sub>[cr art: dannmilanesa6945 Pinterest]</sub></p>
-
----
-
 # [Cheese] ![Profile Views](https://komarev.com/ghpvc/?username=MacNCheese0990&color=blue)
 > “A scratch for it, a scar for me.” - Cat Hunter CRP [My supposed? persona]
 
@@ -81,6 +73,14 @@
 
 ### Interactive Stat
 <img src="https://streak-stats.demolab.com?user=MacNCheese0990&theme=tokyonight&hide_border=true" alt="MacNCheese0990's GitHub Stats" />
+
+---
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/d42ee722-3841-4808-a406-b4bc7a3c6bca" width="350" height="350">
+</p>
+
+<p align="center"><sub>[cr art: dannmilanesa6945 Pinterest]</sub></p>
 
 ---
 <p align="center"><sub>[Thank you for reaching out to my profile]</sub></p>
