@@ -36,7 +36,7 @@
 
 - Regardless of stated above- I still am able to be anyone you want (cheerful/quiet/someone you wish to vent to/rude- actively become a whole new person?)
 
-- If you think bullying/harassing/mocking/ignoring me is an ideal opinion- I barely gaf unless you're my close friends.
+- If you think bullying/harassing/mocking/ignoring me is an ideal option- I barely gaf unless you're my close friends.
 
 - Don't care about someone's backstory be it good or not- unless that person acts awful around my friends
 
