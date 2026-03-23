@@ -5,9 +5,9 @@
 
 ### My other socials
 
-<a href="https://macncheese0990.atabook.org/">My atabook</a>
+<a href="https://macncheese0990.atabook.org/">Sign my ata here ^^</a>
 
-<a href="https://macncheese0990.straw.page">My strawpage</a>
+<a href="https://macncheese0990.straw.page">Check out my humble strawpage</a>
 
 ---
 
