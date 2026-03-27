@@ -27,19 +27,7 @@
 - Not a fan of Kpop/Jpop.
 
 - Huge fans of Melanie Martinez, The Living Thombstone, Lady Gaga
-
-- Tend to get rude while IC so ignores me if you despise that
-
-- (Extreme) apathetic- if I'm being kind/understanding to you, remember it's just an act.
-
-- Regardless of stated above- I still am able to be anyone you want (cheerful/quiet/someone you wish to vent to/rude- actively become a whole new person?)
-
-- If you think bullying/harassing/mocking/ignoring me is an ideal option- I barely gaf unless you're my close friends.
-
-- Don't care about someone's backstory be it good or not- unless that person acts awful around my friends
-
-- I only stays genuine around my irl cousins/friends (Varen, Charlie, Acocuca etc.)
-
+- 
 - Enjoys dark/grim horror or psychology horror, creepypasta, analog horror
 
 - A Russian/English song enthusiast
