@@ -1,4 +1,4 @@
-![Profile Views](https://komarev.com/ghpvc/?username=MacNCheese0990&color=grey)
+![Profile Views](https://komarev.com/ghpvc/?username=MacNCheese0990&color=gray)
 
 Under construction 🚧
 
