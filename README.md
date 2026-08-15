@@ -9,3 +9,5 @@
 <p align="center"> <sub><sup> [UNDER MASSIVE WIP] </a></sup></sub>
 
 <img width="736" alt="Image" src="https://github.com/user-attachments/assets/91aef092-78c6-4676-a7a3-2e3d93390451" />
+
+[Dakooka - Умри если меня не любишь](https://github.com/user-attachments/files/31102343/Dakooka.-.mp3)
