@@ -8,5 +8,5 @@
 
 <p align="center"> <sub><sup><a href="https://creepypastafiles.fandom.com/wiki/Rudy_the_ghost">My Creepypasta (CRP) OC</a></sup></sub>
 
-<p align="center"> <sub>
-${\color{#a00d13}\textsf{he/him 16 entp}}$ </a></sub>
+<p align="center">
+${\color{#0019ff}\textsf{h e  /  h i m}}$ ${\color{#7800c6}\textsf{16}}$ ${\color{#ff00a0}\textsf{e n t p}}$
