@@ -14,7 +14,7 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ---
 
-### ${\color{#f10c45}\textsf{𝐌𝐲 𝐅𝐚𝐧𝐝𝐨𝐦}}$
+### ${\color{#d5ccab}\textsf{𝐌y}}$ ${\color{#878568}\textsf{𝐅𝐚𝐧𝐝𝐨𝐦}}$
 
 
 <details>
