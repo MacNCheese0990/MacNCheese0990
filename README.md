@@ -14,12 +14,11 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ---
 
+### ${\color{#b3e5fc}\textsf{𝐌𝐲 𝐅𝐚𝐧𝐝𝐨𝐦}}$
+
 
 <details>
-<summary>${\color{#ff1b1c}\textsf{𝐌𝐲 𝐅𝐚𝐧𝐝𝐨𝐦}}$</summary>
-
-
-ֺּׅ**𓏽⑅ 𝐇ⱺ𝗋𝗋ⱺ𝗋**
+<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐇ⱺ𝗋𝗋ⱺ𝗋}}$</summary>
 
 
  ݁ᛪ༙ _Creepypasta (+Slendermansion AUs)_
@@ -44,9 +43,10 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
  ᛪ༙ _Backrooms_
 
+</details>
 
-
-**𓏽⑅ 𝐒ⱺⱺ𝗍ɦ𝗂𐓣𝗀**
+<details>
+<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐒ⱺⱺ𝗍ɦ𝗂𐓣𝗀}}$</summary>
 
 ᛪ༙ _Dreamcore_
 
@@ -62,9 +62,10 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Superliminal_
 
+</details>
 
-
-**𓏽⑅ 𝐏𝗌𝗒𝖼ɦⱺᥣⱺ𝗀𝗂𝖼αᥣ/Investigation?**
+<details>
+<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐏𝗌𝗒𝖼ɦⱺᥣⱺ𝗀𝗂𝖼αᥣ/Investigation?}}$</summary>
 
 ᛪ༙ _Searching/Destroying World That Doesn't Exist_
 
@@ -78,11 +79,12 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Dream SMP (Logstedshire, The Manberg vs. Pogtopia war)_
 
+</details>
 
 
 
-
-**𓏽⑅ 𝐆ⱺ𝗋𝖾/𝐕𝗂ⱺᥣ𝖾𐓣𝖼𝖾**
+<details>
+<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐆ⱺ𝗋𝖾/𝐕𝗂ⱺᥣ𝖾𐓣𝖼𝖾}}$</summary>
 
 ᛪ༙ _Madness Combat_
 
@@ -95,3 +97,5 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 ᛪ༙ _Security Breach (+AUs)_
 
 ᛪ༙ _Call of Duty (mostly MW1, MW2 and MW3)_
+
+</details>
