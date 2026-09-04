@@ -150,7 +150,7 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Beauty and The Beast_
 
-ᛪ༙ _Shimmer and Shine (don't judge...)
+ᛪ༙ _Shimmer and Shine (don't judge...)_
 
 ᛪ༙ _Power Rangers_
 
