@@ -9,19 +9,89 @@
 <p align="center"> <sub><sup><a href="https://creepypastafiles.fandom.com/wiki/Rudy_the_ghost">My Creepypasta (CRP) OC</a></sup></sub>
 
 <p align="center">
-${\color{#0019ff}\textsf{h e  /  h i m}}$ ${\color{#7800c6}\textsf{16}}$ ${\color{#ff00a0}\textsf{e n t p}}$
+${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf{ 𝟏 𝟔 }}$ ${\color{#ff00a0}\textsf{ 𝐞 𝐧 𝐭 𝐩}}$
 
 
 ---
 
 
 <details>
-<summary>${\color{#ff1b1c}\textsf{My}}$ ${\color{#00e5ff}\textsf{Fandom}}$ ${\color{#39ff14}\textsf{(s)}}$</summary>
+<summary>${\color{#ff1b1c}\textsf{𝐌𝐲 𝐅𝐚𝐧𝐝𝐨𝐦}}$</summary>
 
-**I. Horror vibe-** Creepypasta (+Slendermansion AUs), SCP, Mandela Catalogue, Little Nightmares, NINAH, That's Not My Neighbour, TLOU, Peta-Peta (school), Trevor Henderson's creatures, Doctor Nowhere's creatures
 
-**II. Calm/Soothing vibe-** Backrooms, Dreamcore/Weirdcore/Kidcore/Glitchcore, Subliminal/Liminal Space
+ֺּׅ**𓏽⑅ 𝐇ⱺ𝗋𝗋ⱺ𝗋**
 
-**III. Psychological?? vibe-** SFAWTDE, DAWTDE, There Were Two Kids In The House, Marble Hornets, Tribetwelve, Bad Parenting, TBIY, DSMP
 
-**IV. Slight gore/violence vibe-** Madness Combat, FNAF (+AUs), Attack On Titan, Sister Location/Circus Baby Pizzaria (+AUs), Security Breach (+AUs), Call of Duty (mostly TF141, KorTac, Ghosts), DSMP (again)
+ ݁ᛪ༙ _Creepypasta (+Slendermansion AUs)_
+ 
+ ݁ᛪ༙ _SCP_
+ 
+ ݁ᛪ༙ _Mandela Catalogue_
+ 
+ ݁ᛪ༙ _Little Nightmares_
+ 
+ ݁ᛪ༙ _No, I'm Not A Human_
+ 
+ ݁ᛪ༙ _That's Not My Neighbour_
+ 
+ ݁ᛪ༙ _The Last Of Us_
+ 
+ ݁ᛪ༙ _Peta Peta_
+ 
+ ݁ᛪ༙ _Trevor Henderson's creatures_
+ 
+ ݁ᛪ༙ _Doctor Nowhere's creatures_
+
+ ᛪ༙ _Backrooms_
+
+
+
+**𓏽⑅ 𝐒ⱺⱺ𝗍ɦ𝗂𐓣𝗀**
+
+ᛪ༙ _Dreamcore_
+
+ᛪ༙ _Weirdcore_
+
+ᛪ༙ _Kidcore_
+
+ᛪ༙ _Glitchcore_
+
+ᛪ༙ _Subliminal_
+
+ᛪ༙ _Liminal Space_
+
+ᛪ༙ _Superliminal_
+
+
+
+**𓏽⑅ 𝐏𝗌𝗒𝖼ɦⱺᥣⱺ𝗀𝗂𝖼αᥣ/Investigation?**
+
+ᛪ༙ _Searching/Destroying World That Doesn't Exist_
+
+ᛪ༙ _There Were Two Kids In The House_
+
+ᛪ༙ _Marble Hornets_
+
+ᛪ༙ _Tribetwelve_
+
+ᛪ༙ _Bad Parenting_
+
+ᛪ༙ _Dream SMP (Logstedshire, The Manberg vs. Pogtopia war)_
+
+
+
+
+
+**𓏽⑅ 𝐆ⱺ𝗋𝖾/𝐕𝗂ⱺᥣ𝖾𐓣𝖼𝖾**
+
+ᛪ༙ _Madness Combat_
+
+ᛪ༙ _FNAF (+AUs)_
+
+ᛪ༙ _Attack On Titan_
+
+ᛪ༙ _Sister Location/Circus Baby Pizzaria (+AUs)_
+
+ᛪ༙ _Security Breach (+AUs)_
+
+ᛪ༙ _Call of Duty (mostly MW1, MW2 and MW3)_
