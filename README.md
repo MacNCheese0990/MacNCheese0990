@@ -79,6 +79,16 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Dream SMP (Logstedshire, The Manberg vs. Pogtopia war)_
 
+ᛪ༙ _The Amazing Digital Circus_
+
+ᛪ༙ _The Underworld Office_
+
+ᛪ༙ _Doctor Who_
+
+ᛪ༙ _Arrival (2016)_
+
+ᛪ༙ _Slender: The Arrival_
+
 </details>
 
 
@@ -98,4 +108,58 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Call of Duty (mostly MW1, MW2 and MW3)_
 
+ᛪ༙ _Centaura (Roblox)_
+
+ᛪ༙ _The Freak Circus_
+
+ᛪ༙ _Texas Chainsaw Massacre_
+
+ᛪ༙ _Dead By Daylight_
+
 </details>
+
+
+<details>
+<summary>${\color{#ac5f8b}\textsf{𓏽⑅ 𝐄𝗑𝗍𝗋α αᥣ𝗂α𝗌 𝚰ᑯ𝗄 ωɦ𝖾𝗋𝖾 𝗍ⱺ ρυ𝗍}}$</summary>
+
+ᛪ༙ _High Rise Invasion_
+
+ᛪ༙ _Wonderland (Roblox)_
+
+ᛪ༙ _My Hero Academia_
+
+ᛪ༙ _Unstable SMP_
+
+ᛪ༙ _Pencilmate_
+
+ᛪ༙ _Little Red Riding Hood_
+
+ᛪ༙ _Snow White and The Seven Dwarfs_
+
+ᛪ༙ _The Cuphead Show_
+
+ᛪ༙ _Death Palette (dead fandom)_
+
+ᛪ༙ _Fundamental Paper Education_
+
+ᛪ༙ _Baldi Basics_
+
+ᛪ༙ _Animation vs... (Alan Becker)_
+
+ᛪ༙ _Skibidi Toilet (like the war, not the brainrot, learn the difference)_
+
+ᛪ༙ _Beauty and The Beast_
+
+ᛪ༙ _Shimmer and Shine (don't judge...)
+
+ᛪ༙ _Power Rangers_
+
+ᛪ༙ _Any DC marvel_
+
+ᛪ༙ _The Amazing World of Gumball_
+
+ᛪ༙ _PJ Masks_
+
+ᛪ༙ _Rick and Morty_
+
+ᛪ༙ _The Simpsons_
