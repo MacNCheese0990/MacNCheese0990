@@ -14,11 +14,11 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ---
 
-### ${\color{#b3e5fc}\textsf{𝐌𝐲 𝐅𝐚𝐧𝐝𝐨𝐦}}$
+### ${\color{#f10c45}\textsf{𝐌𝐲 𝐅𝐚𝐧𝐝𝐨𝐦}}$
 
 
 <details>
-<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐇ⱺ𝗋𝗋ⱺ𝗋}}$</summary>
+<summary>${\color{#805b87}\textsf{𓏽⑅ 𝐇ⱺ𝗋𝗋ⱺ𝗋}}$</summary>
 
 
  ݁ᛪ༙ _Creepypasta (+Slendermansion AUs)_
@@ -46,7 +46,7 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 </details>
 
 <details>
-<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐒ⱺⱺ𝗍ɦ𝗂𐓣𝗀}}$</summary>
+<summary>${\color{#52677d}\textsf{𓏽⑅ 𝐒ⱺⱺ𝗍ɦ𝗂𐓣𝗀}}$</summary>
 
 ᛪ༙ _Dreamcore_
 
@@ -65,7 +65,7 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 </details>
 
 <details>
-<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐏𝗌𝗒𝖼ɦⱺᥣⱺ𝗀𝗂𝖼αᥣ/Investigation?}}$</summary>
+<summary>${\color{#6f8d6a}\textsf{𓏽⑅ 𝐏𝗌𝗒𝖼ɦⱺᥣⱺ𝗀𝗂𝖼αᥣ/Investigation?}}$</summary>
 
 ᛪ༙ _Searching/Destroying World That Doesn't Exist_
 
@@ -84,7 +84,7 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 
 <details>
-<summary>${\color{#ff1b1c}\textsf{𓏽⑅ 𝐆ⱺ𝗋𝖾/𝐕𝗂ⱺᥣ𝖾𐓣𝖼𝖾}}$</summary>
+<summary>${\color{#c27c5c}\textsf{𓏽⑅ 𝐆ⱺ𝗋𝖾/𝐕𝗂ⱺᥣ𝖾𐓣𝖼𝖾}}$</summary>
 
 ᛪ༙ _Madness Combat_
 
