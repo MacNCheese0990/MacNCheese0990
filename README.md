@@ -26,6 +26,8 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
  ݁ᛪ༙ _SCP_
  
  ݁ᛪ༙ _Mandela Catalogue_
+
+ ᛪ༙ _Alice in Borderland_
  
  ݁ᛪ༙ _Little Nightmares_
  
@@ -163,6 +165,8 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 ᛪ༙ _Godzilla_
 
 ᛪ༙ _The Lion King_
+
+ᛪ༙ _Alice in Wonderland_
 
 ᛪ༙ _The chronicles of Narnia (⭐)_
 
