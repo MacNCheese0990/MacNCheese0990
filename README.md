@@ -196,6 +196,24 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Hulk_
 
+ᛪ༙ _Aphmau Crew_
+
+ᛪ༙ _School SMP_
+
+ᛪ༙ _Dream SMP (generally)_
+
+ᛪ༙ _Legends SMP (Akkurone)_
+
+ᛪ༙ _2B2T_
+
+ᛪ༙ _Doni SMP_
+
+ᛪ༙ _Monster School_
+
+ᛪ༙ _Any Minecraft animated movies_
+
+ᛪ༙ _The Minecraft Movie_
+
 </details>
 
 ---
