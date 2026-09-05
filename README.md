@@ -30,6 +30,8 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
  ݁ᛪ༙ _Little Nightmares_
  
  ݁ᛪ༙ _No, I'm Not A Human_
+
+ ᛪ༙ _Resident Evil_
  
  ݁ᛪ༙ _That's Not My Neighbour_
  
@@ -61,6 +63,8 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 ᛪ༙ _Liminal Space_
 
 ᛪ༙ _Superliminal_
+
+ᛪ༙ _Sky: Children of the Light_
 
 </details>
 
@@ -146,6 +150,8 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Animation vs... (Alan Becker)_
 
+ᛪ༙ _Planet of Apes_
+
 ᛪ༙ _Skibidi Toilet (like the war, not the brainrot, learn the difference)_
 
 ᛪ༙ _Beauty and The Beast_
@@ -154,7 +160,13 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _Power Rangers_
 
-ᛪ༙ _Any DC marvel_
+ᛪ༙ _Godzilla_
+
+ᛪ༙ _The Lion King_
+
+ᛪ༙ _The chronicles of Narnia (⭐)_
+
+ᛪ༙ _Jurassic Park_
 
 ᛪ༙ _The Amazing World of Gumball_
 
@@ -164,4 +176,16 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 ᛪ༙ _The Simpsons_
 
+ᛪ༙ _Maleficient_
+
+ᛪ༙ _Home Alone_
+
 ᛪ༙ _Jumanji_
+
+ᛪ༙ _Countryhumans_
+
+ᛪ༙ _Kung Fu Panda_
+
+ᛪ༙ _How to train your dragon_
+
+ᛪ༙ _Hulk_
