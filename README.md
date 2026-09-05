@@ -163,3 +163,5 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 ᛪ༙ _Rick and Morty_
 
 ᛪ༙ _The Simpsons_
+
+ᛪ༙ _Jumanji_
