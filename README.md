@@ -4,6 +4,8 @@
 
 <img width="1280" height="103" alt="Image" src="https://github.com/user-attachments/assets/57637e02-b204-4603-9b2d-79afdc4b6e51" />
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lora&pause=1000&color=960000BD&center=true&vCenter=true&width=435&lines=i+heart+scp+035;i+heart+cat+hunter" alt="Typing SVG" /></a>
+
 <img width="640" height="537" alt="Image" src="https://github.com/user-attachments/assets/e074a534-aac5-41ea-9627-513dc6aee196" />
 
 <p align="center"> <sub><sup><a href="https://creepypastafiles.fandom.com/wiki/Rudy_the_ghost">My Creepypasta (CRP) OC</a></sup></sub>
