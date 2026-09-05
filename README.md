@@ -222,3 +222,6 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 
 <img width="718" height="62" alt="Image" src="https://github.com/user-attachments/assets/d2376adb-a020-4c41-8dc9-a866e0db6908" />
 <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>
+
+<img width="720" height="77" alt="211558" src="https://github.com/user-attachments/assets/f023860d-74b3-4d21-a313-8132422d7f9d" />
+<a href="https://github.com/PT-FANtastic-Hall">@PT-FANtastic-Hall</a>
