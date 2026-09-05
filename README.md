@@ -193,3 +193,7 @@ ${\color{#0019ff}\textsf{𝐡 𝐞 / 𝐡 𝐢 𝐦 }}$ ${\color{#7800c6}\textsf
 ᛪ༙ _How to train your dragon_
 
 ᛪ༙ _Hulk_
+
+---
+
+<img width="718" height="62" alt="Image" src="https://github.com/user-attachments/assets/d2376adb-a020-4c41-8dc9-a866e0db6908" />
